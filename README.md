@@ -1,6 +1,27 @@
 ### 👋 Hi, I'm Yot3, also known as Gavyn!
 #### The name Yote comes from an old nickname I picked up back when I worked in the oilfield. I was always a pretty skinny guy, but I could eat way more than anyone expected, so the crew started calling me Coyote. Over time, a few friends and fellow developers shortened it down to Yote, and it just stuck. Now it follows me into the tech world the same way it did out in the field.
 ---
+# 🌆 Join the Forsaken City RP Community
+
+Interested in FiveM roleplay? Come be a part of Forsaken City RP, a growing community focused on immersive storytelling, meaningful character development, and fun server-wide events.
+
+👉 Join the Discord here:
+
+🔗 https://discord.gg/3nmECuzMrk
+
+What you'll find inside:
+
+🛡️ Soft-Whitelisted server
+
+🚓 Structured departments & organizations
+
+🎭 Deep roleplay environment
+
+🎉 Frequent community events
+
+👥 Friendly staff & support
+
+Step into the city, create your story, and become part of something awesome. See you inside! 🚀
 
 ### 🌐 Connect with me:
 [![Gmail Badge](https://img.shields.io/badge/-gpagework@gmail.com-c14438?logo=Gmail&logoColor=white&link=mailto:gpagework@gmail.com)](mailto:gpagework@gmail.com) 

@@ -1,5 +1,5 @@
 ### 👋 Hi, I'm Yot3, also known as Gavyn!
-
+#### The name Yote comes from an old nickname I picked up back when I worked in the oilfield. I was always a pretty skinny guy, but I could eat way more than anyone expected, so the crew started calling me Coyote. Over time, a few friends and fellow developers shortened it down to Yote, and it just stuck. Now it follows me into the tech world the same way it did out in the field.
 ---
 
 ### 🌐 Connect with me:

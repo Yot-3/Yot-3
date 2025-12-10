@@ -1,4 +1,4 @@
-### 👋 Hi, I'm Gavyn Page!
+### 👋 Hi, I'm Yot3, also known as Gavyn!
 
 ---
 
